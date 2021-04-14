@@ -1,6 +1,6 @@
-git clone https://github.com/Darkziinh/darkbot3.0
+git clone https://github.com/Break01/raiva1
 
-cd darkbot3.0
+cd raiva1
 
 chmod +x badut.sh
 
