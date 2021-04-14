@@ -237,7 +237,7 @@ ____██_____██
 ║  *"kiba não xereka"*
 ║  *Número do dark: wa.me/+5522996215481
 ║
-╚═〘 CAUSS BOT 〙`
+╚═〘 LEIAK BOT 〙`
 }
 
 exports.help = help
