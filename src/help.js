@@ -16,8 +16,8 @@ ____██_____██
 ║〘 INFORMAÇÕES 〙
 ║
 ╠🐉 *LEIAK BOT*
-╠🐉 𝐃𝐎𝐍𝐎:  ⃬⃗CAUSS (base dark) 
-╠🐉 *wa.me/+5547992091566*
+╠🐉 𝐃𝐎𝐍𝐎:  ⃬⃗GABRIEL E DANIEL(base escura)
+╠🐉 *wa.me/+5598984527526*
 ╠🐉 𝐒𝐓𝐀𝐓𝐔𝐒: ON
 ║
 ║
@@ -228,9 +228,9 @@ ____██_____██
 ║
 ╠══🐰〘 CAUSS NO CONTROLE 〙🐰══
 ║
-║ *NOME: CAUSS*
-║ *INSTA: animexx_png*
-║ *WPP: wa.me/+5547992091566*
+║ *NOME: GABRIEL E DANIEL
+║ *INSTA: _offgabriel_
+║ *WPP: wa.me/+5598984527526*
 ║ *YOUTUBE: https://youtube.com/c/caussZ*
 ║
 ║  *"base do lindo (DARK BOT 4.0)🐊🚩*
