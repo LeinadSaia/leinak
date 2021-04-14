@@ -228,8 +228,8 @@ ____██_____██
 ║
 ╠══🐰〘 CAUSS NO CONTROLE 〙🐰══
 ║
-║ *NOME: GABRIEL E DANIEL
-║ *INSTA: _offgabriel_
+║ *NOME: GABRIEL E DANIEL*
+║ *INSTA: _offgabriel_*
 ║ *WPP: wa.me/+5598984527526*
 ║ *YOUTUBE: https://youtube.com/c/caussZ*
 ║
