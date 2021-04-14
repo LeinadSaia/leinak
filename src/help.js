@@ -15,7 +15,7 @@ ____██_____██
 ┌─────────❶.❷────────
 ║〘 INFORMAÇÕES 〙
 ║
-╠🐉 *LEIAK BOT*
+╠🐉 *LEIAKBOT*
 ╠🐉 𝐃𝐎𝐍𝐎:  ⃬⃗GABRIEL E DANIEL(base escura)
 ╠🐉 *wa.me/+5598984527526*
 ╠🐉 𝐒𝐓𝐀𝐓𝐔𝐒: ON
